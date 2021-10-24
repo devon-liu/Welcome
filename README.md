@@ -1,4 +1,4 @@
-- 👋 Hi, I’m devon
+- 👋 Have Fun!
 
 
 <!---
